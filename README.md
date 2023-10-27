@@ -1,2 +1,2 @@
-# KtraGK_Android
-http://www.fsend.vn/download/NMFg77-p8uhZ341y_KWlEezkguGWAS6s
+
+http://www.fsend.vn/download/7_zeEX7yOV-NaNwwqka86RTAl6pxdvG7
